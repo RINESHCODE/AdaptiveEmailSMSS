@@ -1,1 +1,1 @@
-# AdaptiveFuckingEmail
+# AdaptiveEmail
